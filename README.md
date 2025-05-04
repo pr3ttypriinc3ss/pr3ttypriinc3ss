@@ -1,12 +1,12 @@
-- 👋 Hi, I’m @pr3ttypriinc3ss
-- 👀 I’m interested in art, music and much more!
-- 🌱 I’m currently learning how to make kandis
-- 💞️ I’m looking to collaborate on food heh
-- 📫 How to reach me idk
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: i have imaginary 
+𖦹ׂ ₊ hi i'm @pr3ttypriinc3ss!˚she/her ⊹⋆
+︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵︵‿︵‿︵‿︵‿︵‿︵
+- 🍰 I have: autism and adhd 
+- 🎀 I have: cuddle comfort
+- 🧁 call me: cherry/zeeb
+- 🥧 I play: forsaken, dandy's world, dead rails and more!
+︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵︵‿︵‿︵‿︵‿︵‿︵
+୨*୧ ﹒feel free to cuddle and hug, interact  me in pony town ✦ 彡
 
-<!---
-pr3ttypriinc3ss/pr3ttypriinc3ss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+thanks for reading...
+
